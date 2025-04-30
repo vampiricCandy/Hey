@@ -1,2 +1,2 @@
-# basic info / Pony town things!
+# basic info / Pony town thing.
 ╭ PONY TOWN / BASIC STUFF ╭
