@@ -15,7 +15,7 @@
 
 ︵︵ INFO! - links
 
-⤷ https://vhstapescore.straw.page/
+⤷ https://vampiricandy.straw.page/
 
 ⤷ I have discord Just ask.
 
